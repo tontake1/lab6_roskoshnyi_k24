@@ -1,0 +1,1 @@
+# lab6_roskoshnyi_k24
